@@ -1,4 +1,4 @@
-![TPV9DP0N4-U02NHTXSETA-e7fe2f524639-512](https://user-images.githubusercontent.com/47144563/187808860-1cb505ee-c927-46e7-90a4-ffe8f3873524.jpg)
+![Aleksandr Gould](https://user-images.githubusercontent.com/47144563/187808944-bb2ac55a-7b6f-4358-81c6-34b699a6172b.png)
 
 ## Hey 👋, This is Aleksandr Gould
 [![Gmail Badge](https://img.shields.io/badge/-aleksandr.gould@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:aleksandr.gould@gmail.com)](mailto:aleksandr.gould@gmail.com) 
